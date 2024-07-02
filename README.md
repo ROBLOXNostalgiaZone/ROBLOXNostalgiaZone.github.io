@@ -1,3 +1,2 @@
-# ROBLOX Nostalgia Zone
-if roblox has any problems with this message me VIA discord: reditables_
-
+# rbx.rocks archive
+i tried to copy everything from Rbx.rocks
